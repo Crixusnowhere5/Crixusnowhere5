@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Crixusnowhere5
+- 👀 I’m interested in c language 
+- 🌱 I’m currently learning c
+- 📫 How to reach me shivamc8888@gmail.com
